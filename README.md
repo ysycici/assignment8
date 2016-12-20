@@ -28,3 +28,10 @@ LRR2014@tc.columbia.edu.*
 "If your like for further information or to look at the process of recording on playing yoyo,please email me at jl4537@tc.columbia.edu." 
 
 ### [Survey for Group 3](https://tccolumbia.qualtrics.com/SE/?SID=SV_cvTMGa3JJjmJurH)
+
+### Group 4 - Love, peace, and rock and roll
+
+Jingtong Feng, Joonyoung Park, Victoria Bertotti, Zhuqian Zhou
+[link](https://drive.google.com/open?id=0B4B036Fmhu-GN3pTLVJkaWxOb0U)
+
+### [Survey for Group 4](https://tccolumbia.qualtrics.com/SE/?SID=SV_bBACp5QhCL3hnP7)
