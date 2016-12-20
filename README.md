@@ -18,4 +18,4 @@ Yay~ Three days ahead! ^_^
 +If, for any reason, the link does not work or you run into some other issues, please email me at
 +LRR2014@tc.columbia.edu.*
 
-#### [Survey for Group 2](https://tccolumbia.qualtrics.com/SE/?SID=SV_cMcWNz2EW1gFPYp)
+### [Survey for Group 2](https://tccolumbia.qualtrics.com/SE/?SID=SV_cMcWNz2EW1gFPYp)
