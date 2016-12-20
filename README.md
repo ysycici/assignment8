@@ -31,7 +31,7 @@ LRR2014@tc.columbia.edu.*
 
 ### Group 4 - Love, peace, and rock and roll
 
-Jingtong Feng, Joonyoung Park, Victoria Bertotti, Zhuqian Zhou
+Jingtong Feng, Joonyoung Park, Victoria Bertotti, Zhuqian Zhou  
 [link](https://drive.google.com/open?id=0B4B036Fmhu-GN3pTLVJkaWxOb0U)
 
 ### [Survey for Group 4](https://tccolumbia.qualtrics.com/SE/?SID=SV_bBACp5QhCL3hnP7)
