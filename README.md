@@ -7,7 +7,7 @@ Gemy (Ngoc) Pham, Phoebe (Linh) Doan, Helen(Chuheng) Hu, Zee (ZhiJun) Huang
 
 Yay~ Three days ahead! ^_^
 
-[Survey for Group 1](https://tccolumbia.qualtrics.com/SE/?SID=SV_9AyZEpbpxumVjQ9)
+### [Survey for Group 1](https://tccolumbia.qualtrics.com/SE/?SID=SV_9AyZEpbpxumVjQ9)
 
 ### Group 2 - LS Double D
 +David Nitkin, David Cody, Shreya Goel, Lauren Romine  
@@ -18,4 +18,4 @@ Yay~ Three days ahead! ^_^
 +If, for any reason, the link does not work or you run into some other issues, please email me at
 +LRR2014@tc.columbia.edu.*
 
-[Survey for Group 2](https://tccolumbia.qualtrics.com/SE/?SID=SV_cMcWNz2EW1gFPYp)
+#### [Survey for Group 2](https://tccolumbia.qualtrics.com/SE/?SID=SV_cMcWNz2EW1gFPYp)
