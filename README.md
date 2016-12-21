@@ -42,3 +42,12 @@ Samantha Pepe, Jie Gao, Benjamin Roberts, Wei Wei
 Link: https://drive.google.com/open?id=0B20_heDOlAVRdzNaZlUwZTlKWGM
 
 ### [Survey for Group 5](https://tccolumbia.qualtrics.com/SE/?SID=SV_415TNFVH9MPTHvv)
+
+### Group 6 - Salsa Dancing Visualized
+Josh Coleman, Lauren Fox, Devon Goto, Rob Jackson, Jon Stelman
+
+[Salsa Dancing Visualized](https://drive.google.com/open?id=0B6yI8UTxTiqabF85QjlGRVUwTzg)
+
+### [Survey for Group 6](https://tccolumbia.qualtrics.com/SE/?SID=SV_2fYr1MpDW76ykAd)
+
+
