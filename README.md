@@ -3,8 +3,8 @@ Biometric data
 
 ## 2017  
 
-### Group 1 - Project Whisking
-Nirmlaiz Colon-Acosta, Melanie Nethercott, Blake Rumuly, Yuwen Zhang 
+### Group 1 - Project Whisking  
+Nirmlaiz Colon-Acosta, Melanie Nethercott, Blake Rumuly, Yuwen Zhang  
 [link](https://drive.google.com/file/d/1BCJjqDgHzwX8acL-3SD36yvvnkxSQyOR/view)
 
 ## 2016  
