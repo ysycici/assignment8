@@ -28,6 +28,11 @@ Lu Han, Yi Shen, Siyu Song, Jiaxi Yang, Chen Zheng, Xiaoliang Zhou
 
 [link](https://drive.google.com/a/tc.columbia.edu/file/d/1mbsvDrk7DPA-PhozMEXPxKF5NWWrB820/view?usp=sharing)
 
+### Group 6 - Run Strong!
+Maria Hamdani, Scott Deming, Eddie Lin, Yanfei Zhou
+
+[link](https://drive.google.com/open?id=1XxtGKTufZvxNd74J8_h0bcHqNJBcoUH8)
+
 ## 2016  
 
 ### Group 1 - The Basketball Team  
