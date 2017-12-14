@@ -16,6 +16,10 @@ Kim, Nick, Dan Yuan, Ting, Zhulin
 
 [link](https://www.youtube.com/watch?v=1-ntgDLFnek&feature=youtu.be). Enjoy the video!
 
+### Group 4 - Finding Your Inner Peace in Vinyasa
+Chen CHEN, He ZHANG, Yang XU, Yigu LIANG, Yibing QU, Yiran DU
+
+[link](https://youtu.be/N3zBloGLJw4)
 
 
 ## 2016  
