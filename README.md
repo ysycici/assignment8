@@ -9,7 +9,7 @@ Abbey Keener, Nirmlaiz Colon-Acosta, Melanie Nethercott, Blake Rumuly, Yuwen Zha
 
 ### Group 2 - LABYRINTH  
 IRIS CHEN, RANDY GLAZER, DUN LIU, ANH NGUYEN  
-https://youtu.be/-LVftmclCIo
+[link](https://youtu.be/-LVftmclCIo)
 
 ### Group 3 - The Return of the Wii-sters, Bowling Game!
 Kim, Nick, Dan Yuan, Ting, Zhulin
