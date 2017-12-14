@@ -1,6 +1,8 @@
 # Assignment 8
 Biometric data
 
+Please complete a survey for each of the 2017 films below using the (this link)[https://tccolumbia.qualtrics.com/jfe/form/SV_5jLGaZ0obZQDn8N].
+
 ## 2017  
 
 ### Group 1 - Project Whisking  
