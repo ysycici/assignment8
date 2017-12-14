@@ -7,6 +7,10 @@ Biometric data
 Abbey Keener, Nirmlaiz Colon-Acosta, Melanie Nethercott, Blake Rumuly, Yuwen Zhang  
 [link](https://drive.google.com/file/d/1BCJjqDgHzwX8acL-3SD36yvvnkxSQyOR/view)
 
+### Group 2 - LABYRINTH
+IRIS CHEN, RANDY GLAZER, DUN LIU, ANH NGUYEN
+https://youtu.be/-LVftmclCIo
+
 ## 2016  
 
 ### Group 1 - The Basketball Team  
