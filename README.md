@@ -28,6 +28,12 @@ Lu Han, Yi Shen, Siyu Song, Jiaxi Yang, Chen Zheng, Xiaoliang Zhou
 
 [link](https://drive.google.com/a/tc.columbia.edu/file/d/1mbsvDrk7DPA-PhozMEXPxKF5NWWrB820/view?usp=sharing)
 
+### Group 6 - Basketball Shooting Analysis
+Fengxian Liu, Jiusi Xu, Siyan Yin, Yifan Sun
+(p.s. Sorry that we just realized to put the link here. We actually uploaded it in assignment8-2017 last night. Hope you enjoy the video!)
+[link](https://www.youtube.com/watch?v=Mmvq7aMtLAk&feature=youtu.be)
+
+
 ## 2016  
 
 ### Group 1 - The Basketball Team  
