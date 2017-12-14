@@ -23,6 +23,10 @@ Chen CHEN, He ZHANG, Yang XU, Yigu LIANG, Yibing QU, Yiran DU
 
 [link](https://youtu.be/N3zBloGLJw4)
 
+### Group 5 - Enhancing Sense of Rhythm
+Lu Han, Yi Shen, Siyu Song, Jiaxi Yang, Chen Zheng, Xiaoliang Zhou
+
+[link](https://drive.google.com/a/tc.columbia.edu/file/d/1mbsvDrk7DPA-PhozMEXPxKF5NWWrB820/view?usp=sharing)
 
 ## 2016  
 
